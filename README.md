@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @mohsetiawanmodeong
 - 👀 I’m interested in Tech Mining such as Programming, Database, Networking and Automation
-- 🌱 I’m currently learning Everything in Technology
+- 🌱 I’m currently working in Mining Technology Industry 
 - 💞️ I’m looking to collaborate on Mining Industry
 - 📫 How to reach me on Facebook, IG and Other Sosmed -> Search Moh. Setiawan Modeong
 
